@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sickplayer124
-- 👀 I’m interested in anime
+- 👀 I’m interested in computers
 - 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on projects? XD
 - 📫 How to reach me is by using the email jackjarman348@gmail.com
